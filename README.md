@@ -1,0 +1,1 @@
+# Symulator-automatu-z-napojami-lub-bankomatu
